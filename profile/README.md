@@ -1,3 +1,3 @@
 # Hey!
 
-Some huge news are coming ❤️
+Some rad news are coming, stay tuned ❤️
